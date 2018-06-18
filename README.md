@@ -1,0 +1,1 @@
+AQUI COMEÇA TUDO
